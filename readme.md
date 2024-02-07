@@ -10,7 +10,7 @@
 
 ## ***contatos*** ##
 
-**📱 Celular: ***+55 (21) 96984-4844 <br>***
+**📱 Celular: ***+55 (21) 99528-2307 <br>***
 💻 Discord: ***https://discord.gg/wH6f928Tga <br>***
 📩 E-mail:** ***xyeardev@gmail.com <br>***
 
